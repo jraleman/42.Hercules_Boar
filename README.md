@@ -1,1 +1,1 @@
-# sb.rocks
+# 42 Hercules - Boar
